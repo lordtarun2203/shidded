@@ -1,4 +1,4 @@
-# Drake Shidding in His Pants 🍆😱👀
+# Drake Shidding in His Pants 😱👀
 
 Welcome to the Drake Shidding in His Pants project. This is the definitive repository for everything related to Drake and his pants-related incidents.
 
